@@ -19,4 +19,6 @@ https://www.comitia.co.jp
 
 - サブカル科学研究会
 
+    - 小説書くよ
+
 
